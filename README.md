@@ -4,6 +4,8 @@ DESIGN THINKING REPORT
 https://squad-suite-18562464.figma.site/
 
 
+[Design Thinking Project Report (2).pdf](https://github.com/user-attachments/files/24794200/Design.Thinking.Project.Report.2.pdf)
+
 
 https://drive.google.com/file/d/1qwrxFjjJL8a5QW3qq4YDYlNh7yyYcV3c/view?usp=sharing
 
