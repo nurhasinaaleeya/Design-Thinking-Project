@@ -3,9 +3,11 @@ DESIGN THINKING REPORT
 
 https://squad-suite-18562464.figma.site/
 
-[Uploading Design Thinking Project Report (2).pdf…]()
 
-Uploading 1768056031.mp4…
+
+https://drive.google.com/file/d/1qwrxFjjJL8a5QW3qq4YDYlNh7yyYcV3c/view?usp=sharing
+
+
 
 REFLECTION
 
